@@ -1,4 +1,4 @@
 # Resume
 
-You can download my CV here
-For Details, Check my LinkedIn : https://www.linkedin.com/in/keerthivasan-kannan-257585153/
+You can download my CV here.
+For more details, check my LinkedIn : https://www.linkedin.com/in/keerthivasan-kannan-257585153/
